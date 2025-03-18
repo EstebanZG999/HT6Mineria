@@ -1,1 +1,1 @@
-# HT6
+# HT6Mineria
